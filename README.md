@@ -5,13 +5,20 @@
   ![](https://komarev.com/ghpvc/?username=Jesterimp&label=.ᐟ.ᐟ&color=128371)<br><br>
 ![<3](https://64.media.tumblr.com/e3f51ffeb2666b86ff795735b5fb5738/31d384f540f4ef34-ec/s2048x3072/d0a8c17483406a90f4320a47aba032131ceae01d.pnj) 
 
-  ![](https://64.media.tumblr.com/9e4839db5e8069fb4a92bfaa9c4180b6/72e233d35c083d2a-56/s1280x1920/859fc3df1cf82afd94810f71f4e6dd5f40d746f0.pnj) 
-
+ </p>
+<p align="center">
+<br>
+  ${\textsf{\color{#478b75}───────────────────────────────── Ი𐑼}}$
 </p>
+
 <p align="center">
 <br> $\textit{{\color{#317c6d}  ⏝꒷︶ ͡𑁬     𝐊𝐞𝐲　𝐨𝐫　𝐬𝐚𝐦𝐮　　𝐬𝐡𝐞　/　𝐡𝐞　　ᛝ　　𝟔𝐓𝐄𝐄𝐍    ໒ ͡ ︶꒷⏝}}$ 
 
-![](https://64.media.tumblr.com/9e4839db5e8069fb4a92bfaa9c4180b6/72e233d35c083d2a-56/s1280x1920/859fc3df1cf82afd94810f71f4e6dd5f40d746f0.pnj) 
+</p>
+<p align="center">
+<br>
+  ${\textsf{\color{#478b75}꒰𐔌─────────────────────────────────}}$
+</p>
 
 </p>
 <p align="center">
